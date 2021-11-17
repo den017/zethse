@@ -1,4 +1,4 @@
-# zethse
+# Журнал о мужской моде men-mag.com в каталогах организаций
 
 [zoon.ru](https://zoon.ru/msk/business/zhurnal_men_na_ulitse_barklaya/)  
 [promportal.su](https://zhurnal-men.promportal.su)  
