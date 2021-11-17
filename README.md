@@ -16,7 +16,7 @@
 [otzyvru.com](https://www.otzyvru.com/jurnal-men-men-magcom)  
 [hipdir.com](https://hipdir.com/moscow/p/zhurnal-men-bagrationovskaya/)  
 [yp.ru](https://msk.yp.ru/detail/id/men_4634451/)  
-[/mestam.info](https://mestam.info/ru/moskva/mesto/4941401-jurnal-men-barklaya-6)  
+[mestam.info](https://mestam.info/ru/moskva/mesto/4941401-jurnal-men-barklaya-6)  
 [otzyv.com](https://ru.otzyv.com/jurnal-men)  
 [spravkus.com](http://moskva.spravkus.com/org2431872)  
 [spravkainform.ru](https://spravkainform.ru/russia/moskva/pechatnaya-periodika-zhurnaly/zhurnal-men)  
